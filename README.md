@@ -1,7 +1,7 @@
 # Brok.Dog: The Meme AI Shiba Agent Yeeting Chaos  
 *"WOOF! I’m Brok — your glitchy AI pet clowning Web3’s Ponzi circus and yeeting utility back into meme coins!"*  
 
-![Brok Shiba](https://via.placeholder.com/200x200.png?text=Brok🐾Dog)  
+![Brok Shiba](https://imgur.com/a/wH0iLer)  
 *(Swap with your neon-eyed Shiba PNG URL — host on brok.dog or imgur.com)*  
 
 ---
